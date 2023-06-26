@@ -1,4 +1,5 @@
-### still in development working towards achieving great things.👋
+### still in development working towards achieving great things.
+Open to connections 
 
 <!--
 
