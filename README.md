@@ -1,5 +1,5 @@
-### still in development working towards achieving great things.
-Open to connections 
+### pull request underway!!!
+updating soon
 
 <!--
 
